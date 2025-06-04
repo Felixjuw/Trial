@@ -1,1 +1,1 @@
-halo dunia gemilanglah dan
+halo dunia gemilangl
