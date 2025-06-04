@@ -1,1 +1,1 @@
-halo dunia gemilangl
+halo dunia gemilanggl
