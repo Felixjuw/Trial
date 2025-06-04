@@ -1,2 +1,4 @@
 halo dunia gemssssssssssssddddddddddddddddddzzzzzzzzzzz
-aaassszzd
+aaassszzdzzz
+
+sssmmmmmmmmmmmmmmmmmmd
