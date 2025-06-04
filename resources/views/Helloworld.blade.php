@@ -1,0 +1,1 @@
+halo dunia gemilanglah dan sanggup rajamu
