@@ -1,4 +1,6 @@
 halo dunia gemssssssssssssddddddddddddddddddzzzzzzzzzzz
 aaassszzdzzz
 
-sssmmmmmmmmmmmmmmmmmmd\\
+ADUHAI
+
+
